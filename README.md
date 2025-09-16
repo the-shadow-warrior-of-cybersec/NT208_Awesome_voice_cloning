@@ -82,7 +82,6 @@
 ## 📞 Liên hệ
 - **Nhóm trưởng**: Võ Quốc Bảo  
   - Email: 23520146@gm.uit.edu.vn  
-  - Zalo: 0337964669  
 - **Thời gian**: Luôn sẵn sàng hỗ trợ
 
 ---
